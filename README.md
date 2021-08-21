@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dshx7
+- 👀 I’m interested in Linux,Programming,Networking
+- 🌱 I’m currently learning Cyber Security
+- 💞️ Not looking for colaboration
+- 📫 You don't reach me
